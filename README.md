@@ -4,8 +4,9 @@
 - I learnt Foxpro,VB,Vb.Net,Asp.Net
 - 👀 I’m interested in ...Learning as well as Teaching Python and SAP
 - 🌱 I’m currently learning ... AI with Python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Join Keonics Computer Training Centre IT Park Hubli Hosur.
+- 💞️ I’m looking to collaborate on ..............Teaching.
+- 📫 How to reach me ...Join keonics hubli facebook page / watch youtube channel rashmi ktchbl/ rashmi keonics.
+-    Keonics Computer Training Centre IT Park Hubli Hosur.
 
 
 <!---

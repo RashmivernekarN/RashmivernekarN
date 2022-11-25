@@ -9,13 +9,12 @@
 - 💞️ I’m looking to collaborate on ..............Teaching.
 - 📫 How to reach me ...Join keonics hubli facebook page / watch youtube channel rashmi ktchbl/ rashmi keonics.
 - Working Place: Keonics Computer Training Centre IT Park Hubli Hosur.
-- Languages Known	: Kannada, Hindi, English, and Konkani.
+- Languages Known	 : Kannada, Hindi, English, and Konkani.
 - Hobbies	: Reading Books and Learning Applications. 
 - Nationality	: Indian
 - Caste	: Hindu Daivadnya Brahman.
-- EDUCATION QUALIFICATION	:PGDCA.
-- EXPERIENCE: 
-- Teaching Experience	: 14 Years 
+- EDUCATION QUALIFICATION: PGDCA.
+- Teaching Experience	 : 14 Years 
 - Others	:  4 Months Worked As CAB Faculty  
         	   At Fatima Degree Collage Keshwapur Hubli.
 

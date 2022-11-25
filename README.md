@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning ... AI with Python
 - 💞️ I’m looking to collaborate on ..............Teaching.
 - 📫 How to reach me ...Join keonics hubli facebook page / watch youtube channel rashmi ktchbl/ rashmi keonics.
--  Keonics Computer Training Centre IT Park Hubli Hosur.
+- Working Place: Keonics Computer Training Centre IT Park Hubli Hosur.
 - Languages Known	: Kannada, Hindi, English, and Konkani.
 •	Hobbies	: Reading Books and Learning Applications. 
 •	Nationality	: Indian

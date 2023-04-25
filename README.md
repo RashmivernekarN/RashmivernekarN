@@ -16,8 +16,7 @@
 - EDUCATION QUALIFICATION: PGDCA.
 - Teaching Experience	 : I Started my Teaching Carrier from 2008 to till date.......
 - Others	: 1 Year Worked As Programming Faculty at Keonics Karwar 2016.  
--               : 4 Months Worked As CAB Faculty  
-        	   At Fatima Degree Collage Keshwapur Hubli.
+                : 4 Months Worked As CAB Faculty at Fatima Degree Collage Keshwapur Hubli.
 
 	DECLARATION:
            I hereby declared that the above-mentioned Information’s are true to best of my knowledge and belief.

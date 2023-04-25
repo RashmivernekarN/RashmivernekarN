@@ -15,7 +15,8 @@
 - Caste	: Hindu Daivadnya Brahman.
 - EDUCATION QUALIFICATION: PGDCA.
 - Teaching Experience	 : I Started my Teaching Carrier from 2008 to till date.......
-- Others	:  4 Months Worked As CAB Faculty  
+- Others	: 1 Year Worked As Programming Faculty at Keonics Karwar.  
+-               : 4 Months Worked As CAB Faculty  
         	   At Fatima Degree Collage Keshwapur Hubli.
 
 	DECLARATION:

@@ -14,7 +14,7 @@
 - Nationality	: Indian
 - Caste	: Hindu Daivadnya Brahman.
 - EDUCATION QUALIFICATION: PGDCA.
-- Teaching Experience	 : 14 Years 
+- Teaching Experience	 : I Started my Teaching Carrier from 2008 to till date.......
 - Others	:  4 Months Worked As CAB Faculty  
         	   At Fatima Degree Collage Keshwapur Hubli.
 

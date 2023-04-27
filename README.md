@@ -6,14 +6,14 @@
 - also learnt Foxpro, VB, Vb.Net, Asp.Net
 - 👀 I’m interested in ...Learning as well as Teaching Python and SAP
 - 🌱 I’m currently learning ... SAP
-- 💞️ I’m looking to collaborate on ..............Teaching.
+- 💞️ I’m looking to collaborate on ..............Teaching and Office Work.
 - 📫 How to reach me ...Join keonics hubli facebook page / watch youtube channel rashmi ktchbl/ rashmi keonics.
 - Working Place: Keonics Computer Training Centre IT Park Hubli Hosur.
 - Languages Known	 : Kannada, Hindi, English, and Konkani.
 - Hobbies	: Learning Applications. 
 - Nationality	: Indian
 - Caste	: Hindu Daivadnya Brahman.
-- EDUCATION QUALIFICATION: PGDCA.
+- EDUCATION QUALIFICATION: M.com,PGDCA.
 - Teaching Experience	 : I Started my Teaching Carrier from 2008 to till date.......
 - Others	: 1 Year Worked As Programming Faculty at Keonics Karwar 2016.  
                 : 4 Months Worked As CAB Faculty at Fatima Degree Collage Keshwapur Hubli.

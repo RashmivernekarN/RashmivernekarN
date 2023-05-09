@@ -13,7 +13,7 @@
 - Hobbies	: Learning Applications. 
 - Nationality	: Indian
 - Caste	: Hindu Daivadnya Brahman.
-- EDUCATION QUALIFICATION: M.com,PGDCA.
+- EDUCATION QUALIFICATION: PGDCA.
 - Teaching Experience	 : I Started my Teaching Carrier from 2008 to till date.......
 - Others	: 1 Year Worked As Programming Faculty at Keonics Karwar 2016.  
                 : 4 Months Worked As CAB Faculty at Fatima Degree Collage Keshwapur Hubli.

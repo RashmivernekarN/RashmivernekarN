@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RashmivernekarN
 - Faculty At Keonics Computer Training Centre IT Park Hubli From 2008 To Till date. 
-- I'm Handling Subjects: MS-Office, Tally ERP-9, Prime, DTP, Spoken English, Internet Operationas.
+- I'm Handling Subjects: MS-Office, Advance Excel, Tally ERP-9, Prime, DTP, Spoken English, Internet Operationas........
 - Web Designing--> HTML, CSS, Java Script, PHP.
 - Programming Sub: C - - --Language, C++, Java, Oracle....AI with Python 
 - also learnt Foxpro, VB, Vb.Net, Asp.Net

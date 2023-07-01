@@ -7,7 +7,7 @@
 - 👀 I’m interested in ...Learning as well as Teaching Python and SAP
 - 🌱 I’m currently learning ... SAP
 - 💞️ I’m looking to collaborate on ..............Teaching and Office Work.
-- General Knowledge ... Cyber security, Ethical hacking, cloud computing, block chain, AWS, Microsoft Azure, VR, IOT, Creating Blogs and Chatbot........
+- General Knowledge ... Cyber security, Ethical hacking, cloud computing, block chain, AWS, Microsoft Azure, VR, IOT, Darkweb, Creating Blogs and Chatbot........
 - 📫 How to reach me ...Join keonics hubli facebook page / watch youtube channel rashmi ktchbl/ rashmi keonics.
 - Working Place: Keonics Computer Training Centre IT Park Hubli Hosur.
 - Languages Known	 : Kannada, Hindi, English, and Konkani.

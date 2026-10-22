@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rashmivernekar
+- 👋 Hi, I’m @Rashmi vernekar
 - 🏫 Faculty at Keonics Computer Training Centre, IT Park, Hubli (From 2008 to Till Date)
 
 - 📚 Handling Subjects: MS-Office, Advanced Excel, Tally ERP-9, Tally Prime, DTP, Spoken English, Internet Operations

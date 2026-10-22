@@ -28,11 +28,10 @@
 
 **Work Experience:**
 *   1 Year Worked as Programming Faculty at Keonics, Karwar in 2016.
-*   4 Months Worked as CAB Faculty at Fatima Degree College, Keshwapur, Hubli.
+*   4 Months Worked as CAB Faculty at Fatima Degree College, Keshwapur, Hubli.(Part Time)
 *   Currently Working as Security Supervisor at Keonics IT Park, Hubli under Libra Detective Security Service (LDSS).
 
 **Declaration:**
 I hereby declare that the above-mentioned information is true to the best of my knowledge and belief.
-RashmivernekarN/RashmivernekarN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+
 --->
